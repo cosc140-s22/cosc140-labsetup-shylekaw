@@ -4,11 +4,11 @@
 
 ### What is one thing that has surprised you so far in Cardiff?
 
-your response
+Everyone here is super friendly and wants to learn a lot about Americans
 
 ### What are three things that you hope to get out of your study abroad experience this semester?
 
-your response
+Explore city life, learn from a public research university, and get absorbed into the melting pot of cultures
 
 ## Feedback
 
