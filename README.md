@@ -12,5 +12,4 @@ Explore city life, learn from a public research university, and get absorbed int
 
 ## Feedback
 
-Once you commit and push your work to Github, I'll update this section with feedback.
-
+So much city life to explore - glad that you are already starting to get into it!
